@@ -6,7 +6,7 @@ layout: default
 
 # 60+ Verses / Passages		
 ### Romans 5:1-2 - Authorized (King James) Version (AKJV)
-```<1> Therefore being justified by faith, we have peace with God through our Lord Jesus Christ: <2> by whom also we have access by faith into this grace wherein we stand, and rejoice in hope of the glory of God.```
+<1> Therefore being justified by faith, we have peace with God through our Lord Jesus Christ: <2> by whom also we have access by faith into this grace wherein we stand, and rejoice in hope of the glory of God.
 
 _(Believers are justified before God by faith. 		
 Believing on the Lord Jesus Christ brings us 		
