@@ -20,7 +20,7 @@ _(Righteousness was imputed unto Abraham by his faith alone.)_
 
 _(Believing on the Lord Jesus Christ makes someone become born of God. Faith alone is all that’s required to become a child of God.)_
 
-##### + John 6:40 - Authorized (King James) Version (AKJV)
+#### + John 6:40 - Authorized (King James) Version (AKJV)
 <40> And this is the will of him that sent me, that every one which seeth the Son, and believeth on him, may have everlasting life: and I will raise him up at the last day.
 
 _(The same will of God in John 1:13)_ 
@@ -120,7 +120,7 @@ _(We are saved through our belief.)	_
 
 _(Nobody can be justified in God’s sight by doing the deeds of the law.)_
 
-##### + 1 John 3:4 - Authorized (King James) Version (AKJV)
+#### + 1 John 3:4 - Authorized (King James) Version (AKJV)
 <4> Whosoever committeth sin transgresseth also the law: for sin is the transgression of the law.	
 
 _(All sin is the transgression of the law. No amount of obstaining from sin can justify you before God because to obstain from sin is to do the deeds of the law. But the righteousness of God is attained by faith of Christ alone on all them that believe on him for salvation.)_
@@ -136,7 +136,7 @@ _(We are justified freely by God’s grace. Meaning there is no cost to being ju
 
 _(God justifies those who believe on Jesus for salvation. There is no boasting in the works of the law. They are not salvific and not meritorious for justification.)_
 
-##### + 1 John 3:4 - Authorized (King James) Version (AKJV)
+#### + 1 John 3:4 - Authorized (King James) Version (AKJV)
 <4> Whosoever committeth sin transgresseth also the law: for sin is the transgression of the law.	
 
 _(Man is justifed by faith alone before God without the deeds of the law. This includes abstaining from any sin for justification because all sin is transgression of the law. To not transgress the law is to be keeping the law and doing the deeds of the law.)_
@@ -161,7 +161,7 @@ _(The condition given for living and never dying is to believe on Jesus Christ.)
 
 _(The works of the law can't bring life)_	
 
-##### + Galatians 3:14 - Authorized (King James) Version (AKJV)
+#### + Galatians 3:14 - Authorized (King James) Version (AKJV)
 <14> that the blessing of Abraham might come on the Gentiles through Jesus Christ; that we might receive the promise of the Spirit through faith.
 
 _(The promise by faith is the Spirit. Believing on Jesus Christ yields life and being given the Spirit. This cannot be done by works.)_	
@@ -188,7 +188,7 @@ _(We are justified by faith and become a child of God by faith in Christ Jesus.)
 
 _(You either receive the Spirit by works exclusively or faith exclusively. Not by having a combination of both.)_	
 
-##### + Galatians 3:14 - Authorized (King James) Version (AKJV)
+#### + Galatians 3:14 - Authorized (King James) Version (AKJV)
 <14> that the blessing of Abraham might come on the Gentiles through Jesus Christ; that we might receive the promise of the Spirit through faith.
 
 _(Paul goes on to say that the Spirit is received by faith on Jesus Christ. This is received exclusively by faith alone.)_
@@ -297,7 +297,7 @@ _(Israel tried to seek righteousness through the works of the law and failed bec
 
 _(King David is saying someone can have their transgression forgiven, sins covered, and have none of their iniquity imputed upon them by the LORD. And those that trust in the LORD shall receive mercy from Him. How did Paul interpret this? 👇)_
 
-##### + Romans 4:5-8 - Authorized (King James) Version (AKJV)
+#### + Romans 4:5-8 - Authorized (King James) Version (AKJV)
 <5> But to him that worketh not, but believeth on him that justifieth the ungodly, his faith is counted for righteousness. <6> Even as David also describeth the blessedness of the man, unto whom God imputeth righteousness without works, <7> saying, Blessed are they whose iniquities are forgiven, and whose sins are covered. <8> Blessed is the man to whom the Lord will not impute sin.
 
 _(According to Paul, King David is saying in Psalm 32 that someone can do no works but believe and be counted righteous before God by this faith alone. Paul is saying that Psalm 32 is teaching that having your transgressions forgiven, sins covered, and having none of your iniquity imputed upon you can be attained without works and instead by faith alone.)_
@@ -331,7 +331,7 @@ _(Righteousness is attained by faith and not by our adhering to the law.)_
 
 _(The gospel profits you by believing it. And you enter into rest by faith.)_
 
-##### + Hebrews 4:9-10 - Authorized (King James) Version (AKJV)
+#### + Hebrews 4:9-10 - Authorized (King James) Version (AKJV)
 <9> There remaineth therefore a rest to the people of God. <10> For he that is entered into his rest, he also hath ceased from his own works, as God did from his.
 
 _(Those who have entered this rest by faith alone as verses 2-3 say have ceased from striving to have rest by their works because your works don’t merit or maintain this rest. Faith alone enters someone into this rest and keeps them in this rest.)_	
@@ -356,12 +356,12 @@ _(Paul says that after someone have believed they should maintain good works. Wh
 
 _(Those who are thirsty can take the water of life freely without cost. This is a reference to the water of salvation.)_
 
-##### + Isaiah 12:3 - Authorized (King James) Version (AKJV)
+#### + Isaiah 12:3 - Authorized (King James) Version (AKJV)
 <3> Therefore with joy shall ye draw water out of the wells of salvation.	
 
 _(We can take from the wells of salvation freely.)_	
 
-##### + Isaiah 55:1 - Authorized (King James) Version (AKJV)
+#### + Isaiah 55:1 - Authorized (King James) Version (AKJV)
 <1> Ho, every one that thirsteth, come ye to the waters, and he that hath no money; come ye, buy, and eat; yea, come, buy wine and milk without money and without price.		
 
 _(We can buy salvation without money and price. Salvation costs us nothing. We can freely take the water of life through faith without works.)_	
